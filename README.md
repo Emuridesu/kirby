@@ -1,4 +1,4 @@
-# kirbysaikyouwarawara
+# kirby
 sumabura
 
 hello! i`m japanese! :20 years old 
