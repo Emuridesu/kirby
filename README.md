@@ -1,5 +1,4 @@
-# kirby
-sumabura
+# Emuri
 
 hello! i`m japanese! :20 years old 
 
